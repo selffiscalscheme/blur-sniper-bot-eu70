@@ -1,4 +1,4 @@
-# 
+# updated blur sniper bot | liquidity-analysis + auto-buy is the best blur sniper bot, featuring liquidity-analysis and auto-buy. Fast, smart, and optimized for NFT trading on
 
 
 
